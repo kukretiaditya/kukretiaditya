@@ -1,6 +1,6 @@
 ## Hi there 👋
 # 💫 About Me:
-🔭 I’m currently pursuing Bsc hons Biomedical Science and have and interest in computers<br>👯 I’m looking to collaborate on Biology projects<br><br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact I like Japanese,know about music and musical instruments, and much more
+🔭 I’m currently pursuing Bsc hons Biomedical Science and have an interest in computers<br>👯 I’m looking to collaborate on Biology projects<br><br>🌱 I’m currently learning about many things<br>⚡ Fun fact I like Japanese, know about music and musical instruments, and much more
 
 
 ## 🌐 Socials:
